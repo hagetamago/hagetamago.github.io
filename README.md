@@ -1,0 +1,1 @@
+# hagetamago.github.io
